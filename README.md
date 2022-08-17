@@ -1,0 +1,2 @@
+# alikskr
+mavi tik istiyorum
